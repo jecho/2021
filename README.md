@@ -1,11 +1,14 @@
 # 2021
 Goodbye 2020 and welcome 2021. 
 
-## For this year
+## For year 2021
 I plan to commit to intentions over resolutions. I will...
 
-* to listen
-* to be conversationally neutral and open minded
-* for religion too be kindness
-* to contribute more code
-* and _just_ to love life
+* listen
+* be conversationally neutral and open minded
+* have religion be kindness
+* contribute more code
+* _just_ love life
+
+## For year 2020
+Thank you helping me, (us) cherish what is here now, what we have now. Thank you for my wife, and my daughter.
