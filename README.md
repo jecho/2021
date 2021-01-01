@@ -13,4 +13,4 @@ I plan to commit to intentions over resolutions. I will...
 * _just_ love life
 
 ## For year 2020
-Thank you helping me, (us) cherish what is here now, what we have now. Thank you for my wife, and my daughter.
+Thank you helping me _(us)_ cherish what is here now, what we have now. Thank you for my wife, and our new born daughter.
