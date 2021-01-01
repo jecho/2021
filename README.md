@@ -8,6 +8,8 @@ I plan to commit to intentions over resolutions. I will...
 * be conversationally neutral and open minded
 * have religion be kindness
 * contribute more code
+* make my daughter laugh be a snuggle buddy
+* cook for the wife
 * _just_ love life
 
 ## For year 2020
